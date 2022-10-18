@@ -4,7 +4,7 @@
 
 𝚊𝚚𝚞𝚒 𝚎𝚗𝚌𝚘𝚗𝚝𝚛𝚊𝚛𝚊𝚜 𝚝𝚘𝚍𝚘𝚜 𝚖𝚒𝚜 𝚙𝚛𝚘𝚢𝚎𝚌𝚝𝚘𝚜 𝚢 𝚛𝚎𝚙𝚘𝚜𝚒𝚝𝚘𝚛𝚒𝚘𝚜 ✔︎
 
-<a href="http://wa.me/573213571089" target="blank"><img src="https://img.shields.io/badge/herbie-25D366?style=for-the-badge&logo=whatsapp&logoColor=black" /></a>
+<a href="http://wa.me/573213571089" target="blank"><img src="https://img.shields.io/badge/mi número-000000?style=for-the-badge&logo=whatsapp&logoColor=black" /></a>
 <!--
 
 
