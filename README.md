@@ -4,7 +4,9 @@
 
 𝚊𝚚𝚞𝚒 𝚎𝚗𝚌𝚘𝚗𝚝𝚛𝚊𝚛𝚊𝚜 𝚝𝚘𝚍𝚘𝚜 𝚖𝚒𝚜 𝚙𝚛𝚘𝚢𝚎𝚌𝚝𝚘𝚜 𝚢 𝚛𝚎𝚙𝚘𝚜𝚒𝚝𝚘𝚛𝚒𝚘𝚜 ✔︎
 
-<a href="http://wa.me/573213571089" target="black"><img src="https://img.shields.io/badge/mi número-25D366?style=for-the-badge&logo=whatsapp&logoColor=black" /></a>
+𝚖𝚒 𝚗𝚞𝚖𝚎𝚛𝚘 𝚍𝚎 𝚝𝚎𝚕𝚎𝚏𝚘𝚗𝚘 𝚙𝚊𝚛𝚊 𝚙𝚛𝚎𝚐𝚞𝚗𝚝𝚊𝚜 𝚢 𝚍𝚞𝚍𝚊𝚜 ☟︎︎︎
+
+<a href="http://wa.me/573213571089" target="black"><img src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=black" /></a>
 <!--
 
 
